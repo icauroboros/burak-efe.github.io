@@ -1,1 +1,0 @@
-# burak-efe.github.io
